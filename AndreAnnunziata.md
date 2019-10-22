@@ -1,12 +1,14 @@
 # Andre Annunziata
 
-![Foto de Andre](https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwi-97OP8K_lAhWyzlkKHaZzCNEQjhx6BAgBEAI&url=https%3A%2F%2Fwww.glamour.mx%2Fcelebrities%2Fgossip%2Farticulos%2Fzac-efron-mujeres-con-las-que-ha-salido%2F13874&psig=AOvVaw2R5WHWWDLxoP1_7rmCHezl&ust=1571834006670173 "Foto de Andre")
+![Foto de Andre](https://cadenaser00.epimg.net/ser/imagenes/2019/08/23/sociedad/1566551028_650297_1566552550_noticia_normal.jpg "Foto de Andre")
 
 ## Hobbies
 
 * Jugar Dota
 * Entrenar
 * Salir en skate
+
+## Frase filosofica
 > Vive la vida y no dejes que la vida te viva. -Susy Diaz 
 
 ## Si fuera presidente

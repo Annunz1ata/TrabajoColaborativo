@@ -7,9 +7,11 @@
 * Escuchar música
 * Videojuegos
 * Tocar guitarra
+* Ver películas
+
 
 ## Cita favorita
-> Si lo puedes imaginar lo puedes programar. -Alejandra Taboada 
+> Si lo puedes imaginar lo puedes programar. -Alejandro Taboada 
 
 ## Si fuera presidente
 
