@@ -6,6 +6,7 @@
 * Videojuegos
 * Salir con amigos
 * Escuchar Música
+* Beber
 
 ## Cita favorita
 
