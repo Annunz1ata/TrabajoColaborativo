@@ -12,6 +12,7 @@
 
 ## Cita favorita
 > Si lo puedes imaginar lo puedes programar. -Alejandro Taboada 
+> Cada persona es el reflejo de la música que escucha. -John Lennon
 
 ## Si fuera presidente
 
