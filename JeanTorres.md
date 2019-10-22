@@ -9,7 +9,7 @@
 * Tocar guitarra
 
 ## Cita favorita
-> Si lo puedes imaginar lo puedes programar. -Alejandra Taboada 
+> Si lo puedes imaginar lo puedes programar. -Alejandro| Taboada 
 
 ## Si fuera presidente
 
